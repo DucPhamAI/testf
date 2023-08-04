@@ -1,6 +1,4 @@
 hello my name is duc pham ai
-anh yeu Enumerator
 
+sjhasfl;kafsd
 
-
-;aflskdjjlk;afdsjkladfsjkl;jkldasfjkdfaskjl;j;kldfas
